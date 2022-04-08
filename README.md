@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**RaihanFaruk/**
+**im RaihanFaruk/**
 
 Here are some ideas to get you started:
 
